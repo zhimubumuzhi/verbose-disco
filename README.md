@@ -1,4 +1,5 @@
-[开始](https://start.me/p/5kkrwA) [云]（https://raindrop.io/cnorris/3-41929043）[主](https://two.it-cxy.top/index.php?theme=wanfeng-nav&u=Lciue) [三]（https://0x3.com/）[里](https://startab.cn/) [简](https://www.jianfast.com/?pc=1) [薪]（https://web.wetab.link/）[标](https://m.inftab.com/#/)
+[开始](https://start.me/p/5kkrwA) [云](https://raindrop.io/cnorris/3-41929043) [竹](https://two.it-cxy.top/index.php?theme=wanfeng-nav&u=Lciue) [三](https://0x3.com/) [梯](https://startab.cn/) [新](https://web.wetab.link/) [边](https://m.inftab.com/#/)  [简](https://www.jianfast.com/?pc=1)
+
 
 [ ](https://ctgaz.blogspot.com/2024/07/c.html)[x](https://x.com/i/bookmarks) [t](https://web.telegram.org/a/#-1002065353150_1) [v](https://vk.com/ctiea)  [o](https://soo.run/) [m](https://mail.tm/zh/)   
 ![imgpsh_fullsize_anim](https://github.com/cciu2123/-/assets/115559470/37832e5a-3e39-4ec9-8340-a4130d19c629) ![wallpaper-1704951905383](https://github.com/user-attachments/assets/a9bb14b1-2bbb-471d-abae-a7dcba05e46c)    
